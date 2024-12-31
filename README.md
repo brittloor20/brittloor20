@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Brittany
-- 👀 I’m interested in AI and Machine Learning Coding 
+- 👀 I’m interested in AI and XR Reality
 - 📫 How to reach me loorbrittany20@gmail.com 
 - 😄 Pronouns: she/her
